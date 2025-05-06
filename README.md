@@ -36,6 +36,6 @@ Kişisel verilerin kanuna aykırı olarak işlenmesi sebebiyle zarara uğraması
 
 İletişim Kişisel verilerinizle ilgili haklarınızı kullanmak veya gizlilik politikamız hakkında daha fazla bilgi almak için yazilimdunyasi2025@gmail.com adresinden bizimle iletişime geçebilirsiniz.
 
-Onay ve Yürürlük Uygulamamızda yer alan kişisel verilerinizi paylaşmak, tamamen sizin tercihinizdir. Uygulamayı kullanmaya devam ettiğiniz takdirde, bu gizlilik politikasını kabul ettiğiniz varsayılacaktır. Bu politika, 11 Nisan 2025 tarihinde yürürlüğe girmiş olup, gerektiğinde güncellenir.
+Onay ve Yürürlük Uygulamamızda yer alan kişisel verilerinizi paylaşmak, tamamen sizin tercihinizdir. Uygulamayı kullanmaya devam ettiğiniz takdirde, bu gizlilik politikasını kabul ettiğiniz varsayılacaktır. Bu politika, uygulamayı indirdiğiniz tarihte yürürlüğe girmiş olup, gerektiğinde güncellenir.
 
 Bu gizlilik politikası, İşbu Uygulama tarafından oluşturulmuştur.
